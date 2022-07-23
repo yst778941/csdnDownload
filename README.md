@@ -1,4 +1,4 @@
-csdn免积分下载：
+csdn免积分C币下载：
 http://dow.dreoma.com
 [dow.dreoma.com.](http://dow.dreoma.com)
 
